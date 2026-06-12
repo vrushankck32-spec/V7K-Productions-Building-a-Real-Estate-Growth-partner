@@ -1,0 +1,2 @@
+# V7K-Productions-Building-a-Real-Estate-Growth-partner
+V7K Productions is positioned as a growth partner for real estate developers, brokers, and property consultants. We drive lead generation, brand growth, and property sales through cinematic content, digital marketing, and strategic branding. The business is built on consumer insights, STP analysis, brand strategy, and scalable sales frameworks.
